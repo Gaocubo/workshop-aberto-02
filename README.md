@@ -1,1 +1,0 @@
-# workshop-aberto-02
